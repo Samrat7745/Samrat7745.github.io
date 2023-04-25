@@ -11,8 +11,6 @@
 
 - 📫 How to reach me **samrat.moon.22033@iitgoa.ac.in**
 
-- ⚡ Fun fact **I'm just a beginner**
-
          
 ## Education
 
@@ -36,7 +34,7 @@
     - -*Dr. Bidhan Pramanik*
    
 ## Hobbies and Interests
-- 🥁 I'm a passionate [percussionist](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=&cad=rja&uact=8&ved=2ahUKEwi3v8DlpMT-AhUxTWwGHYgfDV4QFnoECA0QAQ&url=https%3A%2F%2Fen.wikipedia.org%2Fwiki%2FList_of_percussionists&usg=AOvVaw1V3V7ICioNx_DKjHx_YPwY) and have a keen interst in the field of music
+- 🥁 I'm a passionate Keyboard player and have a keen interst in the field of music
 - I love playing Basketball and Football
 - Anime lover too
 <img align="center" width="250" src="https://media.tenor.com/mssR2brmxP4AAAAC/umaru-anime.gif" alt="mi" >
