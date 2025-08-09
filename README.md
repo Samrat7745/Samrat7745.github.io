@@ -1,7 +1,7 @@
 # Samrat Acharya Moon 🚀
 
-**Final Year B.Tech Student | Mathematics & Computing**  
-**Indian Institute of Technology (IIT) Goa | Class of 2026**
+**Final Year B.Tech Student** | **Mathematics & Computing**  
+**Indian Institute of Technology (IIT) Goa** | **Class of 2026**
 
 ---
 
